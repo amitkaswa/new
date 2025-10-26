@@ -1,2 +1,5 @@
 nxnsnxx
-x snxj :
+x snxj : zmsjs
+xmzmmsks
+    jxjsj
+       xjjs
